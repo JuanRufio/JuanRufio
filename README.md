@@ -33,7 +33,7 @@ Juan Rufio
 
 https://www.facebook.com/johnriderx
 
-https//www.psicodeliasoft.com/juanRufio
+https://www.psicodeliasoft.com/juanRufio
 
 https://github.com/JuanRufio
 
@@ -73,7 +73,7 @@ Juan Rufio
 
 https://www.facebook.com/johnriderx
 
-https//www.psicodeliasoft.com/juanRufio)
+https://www.psicodeliasoft.com/juanRufio)
 https://github.com/JuanRufio
 
 
